@@ -2,7 +2,7 @@
 - 👀 I’m interested in Psicologia é proogramação
 - 🌱 I’m currently learning Web design
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me ...
+- 📫 How to reach me 5563992584188
 - 😄 Pronouns: ele
 - ⚡ Fun fact: ...
 
